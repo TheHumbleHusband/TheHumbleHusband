@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheHumbleHusband
-- 👀 I’m interested in making a life worth living
+- 👀 I’m interested in making a life worth living for my queen and I
 - 🌱 I’m currently learning coding and web design 
 - 💞️ I’m looking to collaborate on getting music to companies 
 - 📫 How to reach me here
